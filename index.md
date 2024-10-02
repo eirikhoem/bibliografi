@@ -17,5 +17,5 @@ Om opphavet for stedsnavnet Andersmyre
 
 
 # Foredrag
-28.04.24 - "Åndalsnes er enda eldre enn vi trodde" - Biblioteket, Rauma kulturhus
+28.04.24 - "Åndalsnes er enda eldre enn vi trodde" - Biblioteket, Rauma kulturhus <br>
 11.10.24 - "Stedsnavn på Åndalsnes" - Framhald, Grytten bondekvinnelag
