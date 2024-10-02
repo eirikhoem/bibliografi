@@ -14,3 +14,8 @@ Om det sammensatte stedsnavnet Åndalsnes
 **Myra til Anders**  
 Om opphavet for stedsnavnet Andersmyre  
 Årbok for Rauma 2023, Åndalsnes 2023, s. xxx-xxx
+
+
+# Foredrag
+28.04.24 - "Åndalsnes er enda eldre enn vi trodde" - Biblioteket, Rauma kulturhus
+11.10.24 - "Stedsnavn på Åndalsnes" - Framhald, Grytten bondekvinnelag
