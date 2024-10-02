@@ -12,7 +12,7 @@ Om det sammensatte stedsnavnet Åndalsnes
 
 ## 2023
 **Myra til Anders**  
-Om opphavet for stedsnavnet Andersmyre  
+Om opphavet for stedsnavnet Andersmyra  
 Årbok for Rauma 2023, Åndalsnes 2023, s. xxx-xxx
 
 
